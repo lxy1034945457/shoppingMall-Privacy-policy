@@ -1,0 +1,1 @@
+# shoppingMall-Privacy-policy
